@@ -1,0 +1,1 @@
+ana sayfa işlemleri yapıldı.
